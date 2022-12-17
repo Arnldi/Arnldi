@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Aldi Renaldi</h1>
-<h3 align="center">Just god can judge me.</h3>
+<h3 align="center">South Sumatera, Indonesia</h3>
 
 - 💬 Ask me about **Everything u want**
 
